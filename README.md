@@ -1,0 +1,1 @@
+# Analisis-Ketidakseimbangan-Spasial-Sekolah-Dasar-di-Kota-Semarang
